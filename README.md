@@ -8,4 +8,5 @@
 - 🏠 Currently based in Turin
 - ⚽ Football player
 - 📫 emanuelefricano93@gmail.com
+- 📘 https://www.linkedin.com/in/emanuele-fricano/
 
